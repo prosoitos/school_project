@@ -16,4 +16,4 @@ We hope to achieve a lot.
 
 # Conclusion
 
-This is truly a great proposal.
+This is truly a great proposal. I am very proud of it.
